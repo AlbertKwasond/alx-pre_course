@@ -1,0 +1,1 @@
+LX is my favorite community. As a software engineering student, it has helped me grow in knowledge and skills. The mentors welcome new members and provide guidelines for community behavior, fostering a positive environment for problem-solving and collaboration. I am grateful for the impact ALX has had on my life and education.
